@@ -3,4 +3,9 @@
 # To modify the layout, see https://jekyllrb.com/docs/themes/#overriding-theme-defaults
 
 layout: home
+title: "East Lansing Mahjong"
 ---
+
+## Welcome to East Lansing Mahjong!
+
+Test text
