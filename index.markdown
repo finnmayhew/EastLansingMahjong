@@ -18,14 +18,12 @@ We meet
 
 **Fridays at 7:30 PM**
 
-at the **STEM Building, 2nd floor**
+at **Hooked**
 
-642 Red Cedar Road<br>
-East Lansing, MI<br>
-48824
+3142 E Michigan Ave,
+<br>Lansing, MI
+<br>48912
 
 Anyone is welcome to join or sit in, no experience is necessary (we will teach you, or you can watch until you feel comfortable playing)!  There is no membership fee and you do not need to bring anything.
-
-You can park in the stadium lot directly west of the building unless there is an event happening (hopefully forewarned in the Discord).  The building will be locked — if you are not an MSU student, send a message in the Discord and someone will run down and let you in.
 
 You might also be interested in the [Southeast Michigan Riichi group](https://semiriichi.github.io/).  They are larger than us and meet more often.  You should also probably check out their website regardless, they have good mahjong info and resources.
