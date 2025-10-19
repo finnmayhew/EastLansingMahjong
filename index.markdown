@@ -12,7 +12,7 @@ title: "East Lansing Mahjong"
 
 ## Welcome!
 
-We’re a group of casual players of different types of mahjong.  Currently we play Wright Patterson and riichi.
+We’re a group of casual players of different types of mahjong.  Currently we play Wright Patterson and riichi, and will likely start playing American soon as well.
 
 We meet
 
