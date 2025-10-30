@@ -14,7 +14,7 @@ title: "East Lansing Mahjong"
 
 We’re a group of casual players of different types of mahjong.  Currently we play Wright Patterson and riichi, and we'll likely start playing American soon as well.
 
-A regular meeting time is currently up in the air as we establish the club, but will likley be
+A regular meeting time is currently up in the air as we establish the club, but will likely be
 
 **Saturdays at 7:30 PM**
 
