@@ -24,7 +24,7 @@ at **Hooked**
 <br>Lansing, MI
 <br>48912
 
-The meeting for this week (the week of October 26) is likely at that time and place, currently being confirmed.
+The meeting for this week (the week of October 26) is at that time and place.
 
 Anyone is welcome to join or sit in, no experience is necessary (we will teach you, or you can watch until you feel comfortable playing)!  There is no membership fee and you do not need to bring anything.
 
