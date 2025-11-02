@@ -14,17 +14,15 @@ title: "East Lansing Mahjong"
 
 We’re a group of casual players of different types of mahjong.  Currently we play Wright Patterson and riichi, and we'll likely start playing American soon as well.
 
-A regular meeting time is currently up in the air as we establish the club, but will likely be
+A regular meeting time is currently up in the air as we establish the club.  The venue is 
 
-**Saturdays at 7:30 PM**
-
-at **Hooked**
+**Hooked**
 
 3142 E Michigan Ave,
 <br>Lansing, MI
 <br>48912
 
-The meeting for this week (the week of October 26) is at that time and place.
+The meeting for this week (the week of November 2nd) is yet to be scheduled.
 
 Anyone is welcome to join or sit in, no experience is necessary (we will teach you, or you can watch until you feel comfortable playing)!  There is no membership fee and you do not need to bring anything.
 
