@@ -22,7 +22,7 @@ A regular meeting time is currently up in the air as we establish the club.  The
 <br>Lansing, MI
 <br>48912
 
-The meeting for this week (the week of November 2nd) is yet to be scheduled.
+The meeting for this week (the week of November 9th) is yet to be scheduled.
 
 Anyone is welcome to join or sit in, no experience is necessary (we will teach you, or you can watch until you feel comfortable playing)!  There is no membership fee and you do not need to bring anything.
 
