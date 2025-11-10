@@ -6,7 +6,7 @@ layout: default
 title: "East Lansing Mahjong"
 ---
 
-[Email us](mailto:eastlansingmahjong@gmail.com)
+[Email us](mailto:eastlansingmahjong@gmail.com) (also, send us an email if you would like to join our mailing list)
 
 [Join our Discord server](https://discord.gg/AZd3guKUYC)
 
