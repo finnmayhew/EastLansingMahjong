@@ -10,6 +10,8 @@ title: "East Lansing Mahjong"
 
 [Join our Discord server](https://discord.gg/AZd3guKUYC)
 
+**The December 6th meeting is cancelled!**
+
 ## Welcome!
 
 We’re a group of casual players of different types of mahjong.  Currently we play Wright Patterson and riichi, and we'll likely start playing American soon as well.
