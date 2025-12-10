@@ -10,7 +10,7 @@ title: "East Lansing Mahjong"
 
 [Join our Discord server](https://discord.gg/AZd3guKUYC)
 
-**The December 6th meeting is cancelled!**
+**The December 13th meeting is on!**
 
 ## Welcome!
 
