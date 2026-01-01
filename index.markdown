@@ -24,7 +24,7 @@ The venue is
 <br>Lansing, MI
 <br>48912
 
-We meet **Saturdays, from 9 AM to 12 PM**.  Feel free to come late or leave early.
+The meeting time is currently up in the air, but it will be either on a weekend or on a weekday after working hours.  Feel free to come late or leave early.
 
 Anyone is welcome to join or sit in, no experience is necessary (we will teach you, or you can watch until you feel comfortable playing)!  There is no membership fee and you do not need to bring anything.
 
