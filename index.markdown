@@ -10,8 +10,6 @@ title: "East Lansing Mahjong"
 
 [Join our Discord server](https://discord.gg/AZd3guKUYC)
 
-**We are on hiatus for winter break, will return mid-January!**
-
 ## Welcome!
 
 We’re a group of casual players of different types of mahjong.  Currently we play Wright Patterson and riichi, and we'll likely start playing American soon as well.
@@ -24,7 +22,11 @@ The venue is
 <br>Lansing, MI
 <br>48912
 
-The meeting time is currently up in the air, but it will be either on a weekend or on a weekday after working hours.  Feel free to come late or leave early.
+The time is
+
+**Sundays, 11:30-2:30**
+
+Feel free to come late or leave early.
 
 Anyone is welcome to join or sit in, no experience is necessary (we will teach you, or you can watch until you feel comfortable playing)!  There is no membership fee and you do not need to bring anything.
 
