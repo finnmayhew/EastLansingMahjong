@@ -12,7 +12,7 @@ title: "East Lansing Mahjong"
 
 ## Welcome!
 
-We’re a group of casual players of different types of mahjong.  Currently we play Wright Patterson and riichi, and we'll likely start playing American soon as well.
+We’re a group of casual players of different types of mahjong.  Currently we play riichi and American (and some of us play other variants too).
 
 The venue is 
 
@@ -31,3 +31,5 @@ Feel free to come late or leave early.
 Anyone is welcome to join or sit in, no experience is necessary (we will teach you, or you can watch until you feel comfortable playing)!  There is no membership fee and you do not need to bring anything.
 
 You might also be interested in the [Southeast Michigan Riichi group](https://semiriichi.github.io/).  They are larger than us and meet more often.  You should also probably check out their website regardless, they have good mahjong info and resources.
+
+There's also the Grand Rapids riichi group Riichi Rapids ([Discord](https://discord.gg/yTCF8EuHZb)), and the MSU mahjong club (you don't have to be a student to attend) ([Discord](https://discord.gg/2kAt76HnAQ)).
