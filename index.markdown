@@ -12,7 +12,7 @@ title: "East Lansing Mahjong"
 
 ## Welcome!
 
-We’re a group of casual players of different types of mahjong.  Currently we play riichi and American (and some of us play other variants too).
+We’re a group of casual players of different types of mahjong.  Currently we mostly play riichi, and play some American as well.
 
 The venue is 
 
