@@ -16,7 +16,7 @@ We’re a group of casual players of different types of mahjong.  Currently we m
 
 This coming Sunday, April 5th, we will actually meet at
 
-**Biggby* at 300 W Grand River Ave!
+**Biggby** at 300 W Grand River Ave!
 
 Other weeks:
 
