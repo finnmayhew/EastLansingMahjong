@@ -14,7 +14,7 @@ title: "East Lansing Mahjong"
 
 We’re a group of casual players of different types of mahjong.  Currently we mostly play riichi, and play some American as well.
 
-NOTE: NOT MEETING ON APRIL 5TH
+
 
 The venue is 
 
