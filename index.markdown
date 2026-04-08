@@ -14,12 +14,6 @@ title: "East Lansing Mahjong"
 
 We’re a group of casual players of different types of mahjong.  Currently we mostly play riichi, and play some American as well.
 
-This coming Sunday, April 5th, we will actually meet at
-
-**Biggby** at 300 W Grand River Ave!
-
-Other weeks:
-
 The venue is 
 
 **Hooked**
